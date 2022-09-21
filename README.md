@@ -36,3 +36,7 @@ Contact jake
 
 ## Email
 [Message me!](jsnyder7207@icloud.com)
+
+
+[Untitled_ Sep 21, 2022 3_31 PM.webm](https://user-images.githubusercontent.com/107268998/191605697-7cfb54e9-3414-4200-80c1-b6c083cdd335.webm)
+
